@@ -3,7 +3,7 @@
 
 ![alt text](https://media.discordapp.net/attachments/1157260681410781207/1229879718078058588/57bfae88bca6cd56b5a39c384df99183.gif?ex=663149be&is=661ed4be&hm=a8f992e7d698000286a0e04593762f523072617d3dd197cb52e885248263580d&)
 
-### the sound of the bell is unusually loud today.
+### hii ^_^ i'm Kira !!
 <p align="center" > feel free to interact!! especially Death Note and Persona 5 enjoyers, hii hello pls let me be ur friend ... >< </p>
 
 dni list -!! pls do not interact w me if:
