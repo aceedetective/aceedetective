@@ -31,6 +31,8 @@ BYI:
 
 if you're wondering what to refer me with, visit my [pronouns page](https://en.pronouns.page/@aceedetective) !!
 
+my discord is <ins>sargesxyc</ins> !! but lmk if u sent a friend req bc i wont accept randos .. ^_^;
+
 ty for stopping by !!<3<3 have a nice day!! ^__^
 
 ![alt text](https://media.discordapp.net/attachments/1157260681410781207/1221631363304919160/tumblr_a97860ec66ff5e37e72d6f60c9c33b92_937b057e_500.png?ex=662ef75d&is=661c825d&hm=d806a9cf620da7adb92668df1dcf6dddd56bbefeb794255957baf73362e49340&)
