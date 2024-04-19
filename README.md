@@ -6,19 +6,6 @@
 ### hii ^_^ i'm Kira !!
 <p align="center" > feel free to interact!! especially Death Note and Persona 5 enjoyers, hii hello pls let me be ur friend ... >< </p>
 
-dni list -!! pls do not interact w me if:
-<p align="center" >
-
-- homophobic ; i'm in a wlw relationship !!
-
-- racist; ure not cool.. /gen
-
-- weird pony skins; makes me feel uncomfy.. pls dni/gen
-
-- basic dni criteria !
-  
-- also please don't ask me to be in a romantic relationship w u!! i'm in a relationship. ^_^; </p>
-
 BYI: 
 <p align="center" >
 
