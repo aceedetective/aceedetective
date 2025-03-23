@@ -5,8 +5,8 @@
 
 ![alt text](https://media.discordapp.net/attachments/1157260681410781207/1231301667035549726/20ff34ebb33b4989d1e0fd3c8ccdf426.gif?ex=66367609&is=66240109&hm=033fa8891ac798454f0bc66f2d4426f6eeaeb404c5adc95f8cad6bf6bae86f33&)
 
-### hii ^_^ i'm Kira !!
-<p align="center" > feel free to interact!! especially Death Note and Persona 5, and Marvel enjoyers, hii hello pls let me be ur friend ... >< </p>
+### hii ^_^ i'm Nana !!
+<p align="center" > feel free to interact!! especially Death Note and Attack On Titan and Marvel enjoyers, hii hello pls let me be ur friend ... >< </p>
 
 BYI: 
 <p align="center" >
@@ -15,14 +15,14 @@ BYI:
   
   - i kinda swear too !! so pls pls let me know if you want me to stop swearing, i usually do that when i'm like super excited ^^;
     
-  - i rly rly REALLY love to talk about my interest !! (death note, persona 5, criminology, anthropology, etc) so if you talk about them i will probably nonstop yap about the subject T.T
+  - i rly rly REALLY love to talk about my interest !! (death note, black metal, criminology, attack on titan, etc) so if you talk about them i will probably nonstop yap about the subject T.T
 </p>
 
-if you're wondering what to refer me with, visit my [pronouns page](https://en.pronouns.page/@aceedetective) !!
+if you're wondering what to refer me with, visit my [pronouns page](https://en.pronouns.page/@morbidpuppy) !!
 
-also pls leave a comment in my [guestbook](https://strwberri.123guestbook.com/) !!
+also pls visit my [strawpage](https://m0rbidpuppy.straw.page) !!
 
-my discord is <ins>sargesxyc</ins> !! but lmk if u sent a friend req bc i wont accept randos .. ^_^;
+my discord is <ins>hoboerenlicker</ins> !! but lmk if u sent a friend req bc i wont accept randos .. ^_^;
 
 ty for stopping by !!<3<3 have a nice day!! ^__^
 
